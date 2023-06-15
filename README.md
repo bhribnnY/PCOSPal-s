@@ -1,1 +1,0 @@
-# PCOSPal-s
